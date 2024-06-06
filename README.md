@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **vkb731@gmail.com**
 
-- 📄 Know about my experiences 
+- 📄 Know about my experiences **https://drive.google.com/file/d/1Mti6tLUvEPHm9V8qOnRmZ2xmzD3NAZER/view?usp=drive_link**
 
 - ⚡ Fun fact **I love exploring new web technologies and am a big fan of clean, efficient code. When I'm not coding, you can find me Reading Books📕,Playing Games🎮 or Listening Songs🎧**
 
